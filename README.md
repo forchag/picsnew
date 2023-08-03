@@ -7,3 +7,5 @@
 
 
 ![zoonoses](https://github.com/forchag/picsnew/assets/22798228/4bc09d06-28be-4205-912c-f315f5ed0a2d)
+
+![logo](https://github.com/forchag/picsnew/assets/22798228/500369a3-f49c-4e1b-82a9-269e409adfd1)
