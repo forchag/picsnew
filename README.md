@@ -24,3 +24,7 @@
 
 
 ![photo1695582961(1)](https://github.com/forchag/picsnew/assets/22798228/f35801bc-aaa1-48d2-9fe3-4e856b3b1ea3)
+
+![Screenshot-44](https://github.com/forchag/picsnew/assets/22798228/02e10911-c5fe-4091-8f4d-56634d55e37c)
+
+![Screenshot-42](https://github.com/forchag/picsnew/assets/22798228/4e3118ae-981b-4df2-a2a5-0570fd3fa8a6)
