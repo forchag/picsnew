@@ -1,5 +1,11 @@
 # picsnew
 
+![cnjc](https://github.com/forchag/picsnew/assets/22798228/f45fc24d-6d0c-410a-85ea-22ce73b0dc47)
+
+
+
+
+
 ![profile](https://github.com/forchag/picsnew/assets/22798228/22089a2e-355a-4482-a8a5-200ee0841707)
 
 
