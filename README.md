@@ -1,5 +1,6 @@
 # picsnew
 ![Screenshot-53-removebg-preview](https://github.com/forchag/picsnew/assets/22798228/cf5efbf8-e137-4893-b5a6-cbdb0c3680da)
+![Your_paragraph_text-removebg-preview](https://github.com/forchag/picsnew/assets/22798228/9f5d54f0-5e62-4a03-abbb-7f50f28c9e26)
 
 ![cnjc](https://github.com/forchag/picsnew/assets/22798228/f45fc24d-6d0c-410a-85ea-22ce73b0dc47)
 ![Screenshot-53-removebg-preview](https://github.com/forchag/picsnew/assets/22798228/ba5521ed-7e04-440c-9ba5-b59fd811f817)
