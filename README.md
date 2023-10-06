@@ -1,4 +1,8 @@
 # picsnew
+![Your_paragraph_text__1_-removebg-preview](https://github.com/forchag/picsnew/assets/22798228/8ead132a-e1a9-4be2-9cb3-2d5cd760d2fe)
+
+
+
 ![Screenshot-53-removebg-preview](https://github.com/forchag/picsnew/assets/22798228/cf5efbf8-e137-4893-b5a6-cbdb0c3680da)
 ![Your_paragraph_text-removebg-preview](https://github.com/forchag/picsnew/assets/22798228/9f5d54f0-5e62-4a03-abbb-7f50f28c9e26)
 
