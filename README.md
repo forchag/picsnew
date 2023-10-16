@@ -17,6 +17,8 @@
 ![cnjc](https://github.com/forchag/picsnew/assets/22798228/f45fc24d-6d0c-410a-85ea-22ce73b0dc47)
 ![Screenshot-53-removebg-preview](https://github.com/forchag/picsnew/assets/22798228/ba5521ed-7e04-440c-9ba5-b59fd811f817)
 
+![90119816000-removebg-preview](https://github.com/forchag/picsnew/assets/22798228/3e9338e7-22d3-4d85-affc-42e495d6989f)
+![PICTURE 1](https://github.com/forchag/picsnew/assets/22798228/6b64af6e-b066-4460-93da-b4053fd8f61f)
 
 ![Screenshot-53](https://github.com/forchag/picsnew/assets/22798228/b4abfb19-549b-4e1d-ab30-eea52f87b87b)
 
