@@ -13,6 +13,8 @@
 
 ![Screenshot-79-removebg-preview](https://github.com/forchag/picsnew/assets/22798228/b7c64f53-2eee-4461-9a49-fc08d6748d86)
 
+![gyde(1)(1)](https://github.com/forchag/picsnew/assets/22798228/3f1f6948-69a0-4fe8-b2ee-95cf3be438b1)
+![2_1_-removebg-preview](https://github.com/forchag/picsnew/assets/22798228/52dbb4d9-991b-47cd-a835-5ba583cb8765)
 
 
 
